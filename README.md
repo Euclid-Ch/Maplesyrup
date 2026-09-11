@@ -9,3 +9,5 @@
 ## 문의
 
 자료와 관련된 자세한 문의사항은 치트닷컴의 EUCLID에게 DM으로 연락해 주세요.
+
+https://cheatdot.com/user/zcgKXwI37qKs
